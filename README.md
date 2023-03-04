@@ -1,5 +1,5 @@
 # 💫 About Me:
-👋 Nice to meet you, my name is Dylan<br>🌎 I'm based in France<br>🔭 President of the non-profit organization LogicMG<br>🌐 I have my own useless website tansuko.fr<br>⚡ I stream on twitch.tv/tansuko in my free time
+👋 Nice to meet you, my name is Dylan<br>🌎 I'm based in France<br>🔭 President of the non-profit organization LogicMG<br>✨ I have my own useless website tansuko.fr<br>⚡ I stream on twitch.tv/tansuko in my free time
 
 
 ## 🌐 Socials:
